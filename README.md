@@ -9,11 +9,10 @@
 ╭◜           ◝ ◜           ◝◜           ◝╮
                  
                  
-                 hello ! i primarily go by the name edward !..
-                  . ♡    kin names are okay too !! we try to match who we use on pony towwn with who is "shifted" in ! call us those names ! hehe
-                  . ♡    we all are okay with they / them  .. but ask if you want more specifics ! he / him is also alright ! we use neos
-                  . ♡    we are dating the most loovely person ever ,, my jonathan .. eek my baby <3 i love you jon !!
-
+hello ! i primarily go by the name edward !..
+. ♡    kin names are okay too !! we try to match who we use on pony towwn with who is "shifted" in ! call us those names ! hehe
+. ♡    we all are okay with they / them  .. but ask if you want more specifics ! he / him is also alright ! we use neos
+. ♡    we are dating the most lovely person ever !! my boyfriend .. heh i love you jon !!!  :  1 / 15 / 24 : <3
                   
      ╰⌒ ꔫ  ◟            ◞◟                 ⌒◞
 
