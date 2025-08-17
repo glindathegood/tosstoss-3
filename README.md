@@ -6,11 +6,15 @@
 
 hello !! i primarily go by edward , but calling me my ponies name [ usually try to match my pony to who is 'shifted in' at the time hehe , but any of my kins names are okay too !! nicknames are usually okay with us! just ask hehe
 
-
-˗ˏˋ ★  proship / darkship ,,,,, anything of that sort .. DNI !!! HEAVY DNI !!! YIICK . get aawaay please , i am super uncomfy with that all , we all are
-
-˗ˏˋ ✧   doubles .... iwec  , we maay be standoff-ish or just ignore you , apologies ! no hard feelings at all , we are just not very comfortable with doubles .
-
+ 𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔                    𓎢𓎠𓎠𓎟𓎠𓎡
+                                                                                                                                                                                      𓏴┊𓏵┊𓏴
+                                                                                                                                                                                      𓏴┊𓏵┊𓏴
+˗ˏˋ ★  proship / darkship ,,,,, anything of that sort .. DNI !!! HEAVY DNI !!! YIICK . get aawaay please , i am super uncomfy with that all , we all are                             𓏴┊𓏵┊𓏴
+                                                                                                                                                                                     𓏴┊𓏵┊𓏴
+˗ˏˋ ✧   doubles .... iwec  , we maay be standoff-ish or just ignore you , apologies ! no hard feelings at all , we are just not very comfortable with doubles .                     𓏴┊𓏵┊𓏴  
+                                                                                                                                                                                   𓎢𓎠𓎠𓎟𓎠𓎡
+  
+ 𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔𓌔
 
    ₊˚ ⏜︵⏜︵⏜︵⏜︵⏜   ୨ ⟡ ୧  ⏜︵⏜︵ ⏜︵⏜︵⏜ ₊˚
   
